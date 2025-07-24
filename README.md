@@ -1,0 +1,1 @@
+# Global-AI-Job-Market-and-Salary-Trends-2025
